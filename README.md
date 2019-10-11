@@ -1,5 +1,5 @@
 # tema-
-tema commit - hanches otilia
+tema commit - Hancheș Otilia
 
 UNIVERSITATEA 1 DECEMBRIE 1918 ALBA IULIA
 
